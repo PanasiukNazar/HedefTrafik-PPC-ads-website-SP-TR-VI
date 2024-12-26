@@ -1,1 +1,1 @@
-[DEMO]((https://panasiuknazar.github.io/HedefTrafik-PPC-ads-website-SP-TR-VI/)
+[DEMO](https://panasiuknazar.github.io/HedefTrafik-PPC-ads-website-SP-TR-VI/)
